@@ -1,23 +1,15 @@
-<p align="center"><img width="700" src="https://gifcity.carrd.co/assets/images/gallery43/f78ad0cd.gif">
 <p align="center">
 <img width="350" src="https://file.garden/aTcVeiXiWGYz_j09/SigilIdle_scaled_3x_minified(1).gif" align="left">
 <table><tr><td>
-<p align="center">
- <img width="95" src="https://media.tenor.com/rkAEqes681cAAAAj/purple-heart-purple.gif">
-  <p align="center">
-⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ hy / him / star⠀ ᶻ 𝗓 𐰁
-<p align="center">
-<img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> astro⠀ fictkin ⠀  fictflect ⠀  copingkin⠀ ꣼
-<p align="center">
-↓ ⠀sign ata and strapg ⠀  <img width="25" src="https://i.imgur.com/P7DdYGv.gif">
-<p align="center">
-  <a href="https://astrozgalaxy.atabook.org/">
- <img width="135" src="https://i.imgur.com/VPtKUbf.png"/>
-</a> ⠀  <img width="135" src="https://i.pinimg.com/originals/f3/e6/9a/f3e69ae7e1847f20398487a2142f3c0f.gif"/> ⠀ <a href="https://astrozdreamz.straw.page/"/>
- <img width="135" src="https://i.imgur.com/plD24fW.png"/>
-</a> 
+<img width="400" src="https://file.garden/aTcVeiXiWGYz_j09/7290b994.gif"></br>
+<p align="center">mech or kin names, it/its pref but fine with he/she</br>
+<i>iwc</i>, usually afk but int if you'd like</p>
+ <p align="center">feel free to sign my ata or ask me anything</br>
+please keep in mind, i am bad at conversation & not too</br>
+ comfortable with strangers.</p>
+ <p align="center">i don't mind if double int</p>
+ <p align="center"><b>main fandoms</b>: nullscape, unstable universe, doors, </br>
+ terraria & block tales</p>
 </td></tr></table>
-<p align="center">
-  <img width="700" src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s400x600/1100fcbc8ec3a12bf983d567937879e839a11cd4.gifv"/>
-</a>
 <br clear="left"/>
+<p align="center"><img width="15" src="https://file.garden/aTcVeiXiWGYz_j09/ezgif.com-webp-to-gif-converter.gif"> <a href="https://www.youtube.com/watch?v=9Jbk4TwjZ_Y&xstg=CAMSEBUJ_b-oH-PhF0yjBgb_zzE%3D">WHY'D WE COME</a> - oingo boingo</p>
