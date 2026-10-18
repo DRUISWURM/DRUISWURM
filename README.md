@@ -8,7 +8,7 @@
 " <i>unlike any animal i remember. lacks several</br>
 features - no eyes. no visible ears either, yet</br>
 has a keen sense of hearing ...</i> "</br>
-<img align="center" width="280" src="https://file.garden/aTcVeiXiWGYz_j09/figure/div.gif" alt="image" /></br>
+<img align="center" width="280" src="https://file.garden/aTcVeiXiWGYz_j09/figure/div2.gif" alt="image" /></br>
 mech or kin names, it/she/he pronouns</br>
 adult, isfp, nihilgender & aroace spec</br>
 honcho, figure & telefragger fictkin</br>
@@ -21,5 +21,5 @@ int but iwc, c+h fine, i tend to be offtab/afk</br>
 i'm bad with conversation, have patience</br>
 </br>
 general dni list, i block freely</br>
-<img align="center" width="280" src="https://file.garden/aTcVeiXiWGYz_j09/figure/div.gif" alt="image" /></p>
+<img align="center" width="280" src="https://file.garden/aTcVeiXiWGYz_j09/figure/div2.gif" alt="image" /></p>
 
