@@ -1,15 +1,4 @@
-<p align="center">
-<img width="350" src="https://file.garden/aTcVeiXiWGYz_j09/SigilIdle_scaled_3x_minified(1).gif" align="left">
-<table><tr><td>
-<p align="center">mech or kin names, it/its pref but fine with he/she</br>
-<i>iwc</i>, usually afk but int if you'd like</p>
- <p align="center">feel free to sign my ata or ask me anything</br>
-please keep in mind, i am bad at conversation & not too</br>
- comfortable with strangers.</p>
- <p align="center">i don't mind if doubles int</p>
- <p align="center"><b>main fandoms</b>: nullscape, unstable universe, doors, </br>
- terraria & block tales</br></p>
- <img width="400" src="https://file.garden/aTcVeiXiWGYz_j09/7290b994.gif">
-</td></tr></table>
-<br clear="left"/>
-<p align="center"><img width="15" src="https://file.garden/aTcVeiXiWGYz_j09/ezgif.com-webp-to-gif-converter.gif"> <a href="https://www.youtube.com/watch?v=9Jbk4TwjZ_Y&xstg=CAMSEBUJ_b-oH-PhF0yjBgb_zzE%3D">WHY'D WE COME</a> - oingo boingo</p>
+<img align="right" height="300" src="https://file.garden/aTcVeiXiWGYz_j09/figure/one.gif" alt="image" /> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cpvqbj75c2r7llfw3hq26eoa4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=be361c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem Ipsum has been the industry's standard dummy text ever since the 1500s, when an unknown printer took a galley of type and scrambled it to make a type specimen book. It has survived not only five 
+centuries, but also the leap into electronic typesetting, remaining essentially unchanged. It was popularised in the 1960s with the release of Letraset sheets containing Lorem Ipsum passages, and more recently with desktop publishing software like Aldus PageMaker including versions of Lorem Ipsum.
+
