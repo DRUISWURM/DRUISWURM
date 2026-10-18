@@ -6,7 +6,7 @@
  <p align="center">feel free to sign my ata or ask me anything</br>
 please keep in mind, i am bad at conversation & not too</br>
  comfortable with strangers.</p>
- <p align="center">i don't mind if double int</p>
+ <p align="center">i don't mind if doubles int</p>
  <p align="center"><b>main fandoms</b>: nullscape, unstable universe, doors, </br>
  terraria & block tales</br></p>
  <img width="400" src="https://file.garden/aTcVeiXiWGYz_j09/7290b994.gif">
